@@ -34,7 +34,7 @@
 
 
 
-   [![мαℓιк υzαιя мк](https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/api?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤u908 "мαℓιк υzαιя мк")](https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/api?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤u "Malik Uzair Mk")
+   [![мαℓιк υzαιя мк](https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/api?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤 "мαℓιк υzαιя мк")](https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/api?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤u "Malik Uzair Mk")
 
    ## About Me
 - 💻 ɪ sᴘєᴄɪᴧʟɪᴢє ɪη ᴡєʙ ᴅєᴠєʟσᴘϻєηᴛ, ϻᴧᴄʜɪηє ʟєᴧꝛηɪηɢ, єᴛᴄ.].
@@ -62,14 +62,14 @@
 <p align="center">
   
   
-🔗 **[GitHub](https://github.com/𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤u908/)**  
+🔗 **[GitHub](https://github.com/MalikUzairMk/)**  
 
   <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <p align="center">
   
 
 ---
-![Github Trophy](https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤u908)
+![Github Trophy](https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤)
 
   <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <p align="center">
@@ -81,7 +81,7 @@ Here are some of my favorite projects:
 
 - [Project 1](https://legendary-swan-7ca626.netlify.app/):
 - [Project 2](https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝): 
-- [Project 3](https://github.com/𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤u908/project-link):
+- [Project 3](https://github.com/𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤/project-link):
   <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <p align="center">
   
@@ -105,12 +105,12 @@ Thank you for visiting my profile. Have a great day! 😄
 <p align="center">
     <img
         width="49%"
-        src="https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/api?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤u908&count_private=true&include_all_commits=true&show_icons=true&theme=tokyonight&custom_title=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤u908's+GitHub+Stats"
+        src="https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/api?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤&count_private=true&include_all_commits=true&show_icons=true&theme=tokyonight&custom_title=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤's+GitHub+Stats"
     />
 
 </p>
 
-![Most Used Languages](https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/api/top-langs/?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤u908&layout=compact&theme=radical)  
+![Most Used Languages](https://Wa.me/+923167546016by/?text=MALIK.UZAIR.MK((☞┾≛⃝/api/top-langs/?username=𝐌𝐚𝐥𝐢𝐤 ᑌ𝐳𝐚𝐢𝐫 ᗰ𝐤&layout=compact&theme=radical)  
 
 ---
 
@@ -124,4 +124,3 @@ Thank you for visiting my profile. Have a great day! 😄
 ### Thank You!  
 
 Thank you for visiting my profile! Feel free to explore my repositories and connect with me. Let's make coding awesome together! 🚀
-
